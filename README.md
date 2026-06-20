@@ -1,1 +1,2 @@
-# gzone-casino-2026
+-   [gzone app](https://gzone-app.com) --- Gzone App: Slots & Casino Games for Fun!
+-   [gzone](https://gzone-ph.download) --- Gzone PH Download: Play Slots & Casino Games At Magenjoy!
