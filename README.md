@@ -1,2 +1,2 @@
--   [gzone app](https://gzone-app.com) --- Gzone App: Slots & Casino Games for Fun!
--   [gzone](https://gzone-ph.download) --- Gzone PH Download: Play Slots & Casino Games At Magenjoy!
+-   [nustar online gcash](https://nustar-login.com) --- Nustar Casino – Play Online Slots, Live Casino and Jackpot Games
+-   [nustar online casino login register](https://nustarapk.com) --- NuStar Casino Online – Bonuses, Slots and Live Dealer Games
